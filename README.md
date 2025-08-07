@@ -16,19 +16,11 @@ The entire day was a beautiful blend of motivation, interaction, and institution
 
 The management and faculty of GNDEC extend heartfelt gratitude to all the esteemed dignitaries and guests for making the first day of the induction program truly memorable.
 
+After that, Mrs. Harpreet Kaur Garewal, HOD of Applied Sciences, who delivered a insightful and welcoming message to us , encouraging us to grqb every opportunity with passion and discipline.
 
----
+Then Dr. Akshay Giddar, Dean Academics, interacted with us and guided us on academic planning and institutional culture. Adding values and  youthful perspective,
+Harleen Kaur Garewal,a first-year student, also shared her thoughts and inspired other ones 
 
-The students then had the privilege of listening to Mrs. Harpreet Kaur Garewal, Head of the Department of Applied Sciences, who delivered a deeply insightful and welcoming message, encouraging students to seize every opportunity with passion and discipline.
+Then Dr. Parminder Singh, Dean Student Welfare, whosepresence and motivational address left the auditorium charged with positivity and purpose.
 
-Further adding value to the program, Dr. Akshay Giddar, Dean Academics, interacted with the students and guided them on academic planning and institutional culture. Adding a fresh and youthful perspective, Harleen Kaur Garewal, a vibrant and enthusiastic first-year student, also shared her thoughts and inspired her peers with her short and heartfelt speech.
-
-The event was then graced by the presence of Dr. Parminder Singh, Dean Student Welfare, whose charismatic presence and motivational address left the entire auditorium charged with positivity and purpose.
-
-The program reached its peak with the address of Dr. Sehajpal Singh, Principal of GNDEC, whose visionary words and encouragement added great value to the day.
-
-
----
-
-Let me know if you want this text in a downloadable file or formatted differently.
-
+Then the most exciting moment come Dr. Sehajpal Singh, Principal GNDEC, whose valuable words and encouragement added great value to our day 
