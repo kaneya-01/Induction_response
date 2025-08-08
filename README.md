@@ -21,3 +21,10 @@ Then Dr. Parminder Singh, Dean Student Welfare, whosepresence and motivational a
 
 Then the most exciting moment come Dr. Sehajpal Singh, Principal GNDEC, whose valuable words and encouragement added great value to our day 
 End of day 1.
+
+Day 2 :- From 9:30 to 11:30 after having welcome test of our college life conducted by our seniors and after a break of 1 hour Then we have a very productive day i.e. Dr Arshdeep singh sir gave us knowledge about food and how meal play an important role in our daily life.
+After that Causmic club of our college launches activities and welcomed the students
+Then HoD, Ma'am Dr Harpreet Kaur gave us an lesson about understanding of life
+End of day 2 
+
+Day 3:- 
